@@ -1,7 +1,8 @@
 ## Hi there!! I'm Diya 👋
 
 # 💫 About Me:
-- Currently into the world of Cybersecurity.<br>- Would love to design your digital life!!
+- Currently into the world of Cybersecurity.<br>
+- Would love to design your digital life!!
 
 
 ## 🌐 Socials:
